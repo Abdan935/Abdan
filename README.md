@@ -1,0 +1,2 @@
+# Abdan
+Gunakan dengan bijak
